@@ -1,0 +1,1 @@
+# North Of Samora WordPress theme
